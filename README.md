@@ -5,4 +5,4 @@ A system engineer focused mainly on web and mobile development, and I like to le
 
 
 
-![Perrito](https://thumbs.gfycat.com/BaggyAshamedKite-size_restricted.gif)
+
